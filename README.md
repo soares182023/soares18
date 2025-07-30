@@ -11,5 +11,6 @@
 
 
  ![](https://media.tenor.com/s1oAPkm0SCkAAAAC/power-rangers-yellow-power-ranger.gif)
+ 
 
-![](https://tenor.com/pt-BR/view/spongebob-squarepants-nickelodeon-sigh-phew-gif-5752975)
+ ![](https://tenor.com/pt-BR/view/spongebob-squarepants-nickelodeon-sigh-phew-gif-5752975)
